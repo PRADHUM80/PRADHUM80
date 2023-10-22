@@ -6,8 +6,8 @@
 
 
   .Email:-kumarroney154@gmail.com <br/>
-  .Linkdin:-https://www.linkedin.com/in/pradhum-kumar-46242b281/
-  .Instagram:-https://www.instagram.com/pradhum_official/
+  .Linkdin:-https://www.linkedin.com/in/pradhum-kumar-46242b281/<br/>
+  .Instagram:-https://www.instagram.com/pradhum_official/<br/>
   .Facebook:-https://www.facebook.com/pradhum.kumar.1485537
   
 
