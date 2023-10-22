@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @PRADHUM80
 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning  Web Development
   
-- 📫 How to reach me ...
+- 📫 How to reach me :-
 
 
   .Email:-kumarroney154@gmail.com <br/>
