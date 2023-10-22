@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 
 
-  .Email:-kumarroney154@gmail.com
+  .Email:-kumarroney154@gmail.com <br/>
   .Linkdin:-https://www.linkedin.com/in/pradhum-kumar-46242b281/
   .Instagram:-https://www.instagram.com/pradhum_official/
   .Facebook:-https://www.facebook.com/pradhum.kumar.1485537
